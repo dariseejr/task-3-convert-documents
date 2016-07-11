@@ -1,90 +1,9 @@
-# THE DIFFERENCE BETWEEN YOU AND ME 
+# My Carolina Essay
 
-Born of two parents 
+If I had the means to travel anywhere, I would probably choose the universe of almost any Japanese shounen manga. I was introduced to Japanese culture through their version of visual novels called manga. Shounen manga usually has a lot of action, and often humorous plots featuring male protagonists. But what really attracts me to an imaginary Japanese world is the camaraderie between people, and the power to overcome any challenge.
 
-Expected of one,  
+In most shounen manga, the author emphasizes themes of bonds between friends. A character in a shounen manga often will prioritize their friends before themselves. In many manga that I have read, the main character would often sacrifice their own safety in order to protect their friends, even if they have been exiled by everyone else. I wish that people in reality would treasure their bonds between their friends like the characters in shounen manga do. True companions are just like a real family – they may not necessarily like each other, or actually have liked each other at first, but they know that they can depend upon each other in a crisis.
 
-They make it seem fair, 
+The protagonists in shounen manga often have cool or amazing powers that may complement their personalities. They often seem very powerful at first, but then they eventually meet others who are more powerful than them as the story progresses. Authors often create villains that are almost seemingly impossible to beat, by giving them some type of superpower that makes them incredibly strong. But the main character is often able to beat them by sheer willpower or by gaining strength from his bonds between his friends. Stereotypically, when delivering the final blow to the villain, the main character gives a diatribe against the flaws of the villain.  The main character continues and mentions how the bonds between his friends or the burden of his responsibilities give him the strength to defeat the villain. In the universe of a shounen manga, you always have the power to overcome any obstacle, if you are able to realize  your responsibilities and use your bonds as a source of power. People in reality can learn that they should already have the means to overcome any obstacle thrown at them, as long as they look at their companions for a means of support. That would be a great attribute for someone to have, which is part of what attracts me to shounen manga.
 
-But they’re not fooling anyone 
-
-Live till 71.8, 
-
-But buried at 16 
-
-The tears stopped flowing and you become berate
-
-But you never saw the scene. 
-
-Address me by “Dr.” 
-
-With obligation and certain stipulations, 
-
-But see me as similar, 
-
-To the child whose status is doomed to the same degradations… 
- 
-Hay muchos diferencias entre los seres humanos 
-
-La lengua 
-
-La cultura 
-
-La ropa 
-
-El dinero 
-
-Los zapatos 
-
-Los cualidades físicas 
-
-**IT’S TOO MUCH!** – 
- 
-We don’t know the answer, 
-
-We wince from what we don’t understand. 
-
-Ignorant 
-
-Confused, 
-
-Afraid,  
-
-It’s the reason why we can start a war with one question: 
-
-“Why are you different than me?” 
-
- 
-「違いは多い過ぎる」 
-
-“This one”, “that one”, “those over there” 
-
-The simple pronouns and the determiners 
-
-Strung together to create an outsider -  
-
-But, aren’t I the same as you? 
-
-If not - what makes you, you? 
-
-「そして、どのように私はあなたに似ていますか」 
- 
- 
- 
-but, I believe that fate brings us together.
-
-You believe that too. 
-
-I want to live in harmony 
-
-with Your blessings in lieu  
-
-I – am a string of intertwined fates. 
-
-You – are a parallel sting of intertwined fates. 
-
-But the good thing about life is: 
-
-once I meet you, 
-
-You also became a part of Me, too. 
+Ever since I started reading manga, I have always wanted to visit one of the worlds the authors created. Japanese authors instill these values into their works in hope of teaching Japanese youths valuable morals. I think a world where the amazing bonds of friendship that you establish with others can offset great hardships and challenges of life is wonderful world.  I believe everyone can learn a valuable lesson from that.
